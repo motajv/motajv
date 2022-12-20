@@ -1,5 +1,5 @@
 ## 💫 Sobre mim:
-Olá pessoal, sou o João, desenvolvedor de automação de testes. Atuo no mercado de tecnologia a mais de 5 anos, durante ese período tive contato com diversas áreas. Atualmente, faço parte do time de Garantia da Qualidade (QA) da [Compass UOL](https://compass.uol/pt/home/?utm_source=google-ads&utm_medium=ppc&utm_campaign=compasso-uol-institucional&utm_term=compass%20uol&gclid=Cj0KCQiA14WdBhD8ARIsANao07gQJOIkrIEL3gjK-YKiqUlisiXy9uoGkkx2GwxGszw_fwXr8mS9dkEaAgwwEALw_wcB).
+Olá pessoal, sou o João, desenvolvedor de automação de testes. Atuo no mercado de tecnologia a mais de 5 anos, durante esse período tive contato com diversas áreas. Atualmente, faço parte do time de Garantia da Qualidade (QA) da [Compass UOL](https://compass.uol/pt/home/?utm_source=google-ads&utm_medium=ppc&utm_campaign=compasso-uol-institucional&utm_term=compass%20uol&gclid=Cj0KCQiA14WdBhD8ARIsANao07gQJOIkrIEL3gjK-YKiqUlisiXy9uoGkkx2GwxGszw_fwXr8mS9dkEaAgwwEALw_wcB).
 
 
 ## 🌐 Redes Sociais:
